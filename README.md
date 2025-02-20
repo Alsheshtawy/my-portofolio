@@ -1,3 +1,3 @@
-### 🔹 Author: **Abdelrahman Mahmmed**  
+### 🔹 Author: **Mohamed Sherif**  
     - **GitHub:** [github.com/your-github](https://github.com/your-github)  
-    - **LinkedIn:** [linkedin.com/in/abdelrahman2mahmmed](https://www.linkedin.com/in/abdelrahman2mahmmed/)  
+    - **LinkedIn:** [linkedin.com/in/Mohamed Sherif](https://www.linkedin.com/in/mohamed-sherif-238a33227/)  
